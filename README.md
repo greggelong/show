@@ -12,4 +12,6 @@ Code
 
 ![cfgCuko2.png](cfgCuko2.png)
 
-[Cuko speaking Serbian](https://editor.p5js.org/greggelong/sketches/haExP3yi4)
+[Cuko speaking Serbian](https://editor.p5js.org/greggelong/present/haExP3yi4)
+
+[Greg Kreisman website](https://greggelong.github.io/)
