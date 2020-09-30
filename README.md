@@ -1,6 +1,7 @@
 # Greg Kreisman and Marijana Crnic
 
-some code for the show
+Code 
+
 ![chinaM.png](chinaM.png)
 
 [Character Mirror](https://editor.p5js.org/greggelong/present/8JH7JMbxC)
