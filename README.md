@@ -1,10 +1,13 @@
 # Greg Kreisman and Marijana Crnic
 
-Gregory Kreisman, edukator, američkog porekla, koji živi i radi u Pekingu, pohađa časove kaligrafije i kineskog tradicionalnog slikarstva. Neočekovano dugo je ostao u našem Gradu. 
+Marijana je iz Srbije iz Srema tačnije, a Greg iz Amerike i zajedno se bave kaligrafijom i kineskim tradicionalnim slikarstvom u Pekingu gde žive i rade, a dela koja će nama predstaviti su dela u stilu kineske kaligrafije, akrilika, apstrakcije i blok printova.
 
-Kao slikar - amater, inspiraciju za svoje slike, dobio je boraveći u Sremskoj Mitrovici, sa željom da svoja dela podeli kroz svoje viđenje, sad već i sa svojim sugrađanima.
+Marijana i Greg izložiće svoje radove u Kafe Pauzi u Sremskoj Mitrovici
+01.10. od 19h do 23h. 
 
 Code 
+
+![showpic.jpg](showpic.jpg)
 
 ![chinaM.png](chinaM.png)
 
