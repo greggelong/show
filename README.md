@@ -1,5 +1,9 @@
 # Greg Kreisman and Marijana Crnic
 
+Gregory Kreisman, edukator, američkog porekla, koji živi i radi u Pekingu, pohađa časove kaligrafije i kineskog tradicionalnog slikarstva. Neočekovano dugo je ostao u našem Gradu. 
+
+Kao slikar - amater, inspiraciju za svoje slike, dobio je boraveći u Sremskoj Mitrovici, sa željom da svoja dela podeli kroz svoje viđenje, sad već i sa svojim sugrađanima.
+
 Code 
 
 ![chinaM.png](chinaM.png)
